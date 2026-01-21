@@ -24,3 +24,11 @@ Today is Chinese New Year!!!
 
 ![alt text](https://media.tenor.com/Q-x-tQAopr0AAAAM/happy-chinese-new-year-chinese-new-year.gif)
 
+
+### Sohana
+Git it done!
+
+![Ready to Git going](https://tenor.com/view/go-girl-gif-8462575419017021164)
+
+
+
